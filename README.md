@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ChrisleneTechSavage
 - 👀 I’m interested in alot of things really. Software development, Creative direction, Art, Fashion!
-- 🌱 I’m currently learning IT
+- 🌱 I have a BS from Florida State University in Information Communication & Technology
 - 📫 How to reach me percevalchrislene@gmail.com
 
 <!---
